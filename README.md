@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Azaan007007
+- 👀 I’m interested in laerning and mastering AI
+- 🌱 I’m currently learning Btech in AI and ML
+- 💞️ I’m looking to collaborate on how to start using github to improve my skills
+- 📫 How to reach me shaikazaanalif@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I'm a tall nerd
